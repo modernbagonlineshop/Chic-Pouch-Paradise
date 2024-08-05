@@ -1,0 +1,2 @@
+# Chic-Pouch-Paradise
+INI ADALAH PROJECT PERTAMA SAYA
